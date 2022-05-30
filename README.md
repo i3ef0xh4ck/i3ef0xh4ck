@@ -1,9 +1,7 @@
-### Hi there 👋
-
-Here are some ideas to get you started:
+Hi there 👋
 
 - 🔭 I’m currently working on Mars...
-- 🌱 I’m currently learning boom Marz...
+- 🌱 I’m currently learning how to  boom Marz...
 - 👯 
 - 🤔 
 - 💬 

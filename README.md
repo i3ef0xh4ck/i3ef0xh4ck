@@ -11,4 +11,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![1651741452186](https://user-images.githubusercontent.com/3281930/170973747-3ed6f62b-c631-4df6-8cfe-0e166eddf6d9.jpg)
+Wechat:
+![11653906694_ pic](https://user-images.githubusercontent.com/3281930/170974093-cfb41749-0f52-47fd-88ec-5ab08a6ef2a3.jpg)
